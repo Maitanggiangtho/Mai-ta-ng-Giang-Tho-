@@ -1,6 +1,7 @@
 Dịch vụ Mai táng Giang Tho – Trọn vẹn nghĩa tình, chu toàn từng nghi lễ1. Giới thiệu về Mai táng Giang Tho
 Mai táng là nghi thức trọng đại, thể hiện lòng hiếu thảo và sự tri ân sâu sắc của con cháu đối với người đã khuất. Mai táng Giang Tho là đơn vị uy tín nhiều năm trong lĩnh vực tang lễ, luôn đồng hành cùng gia quyến trong những thời khắc khó khăn nhất.
 Với phương châm “Chu toàn – Tận tâm – Trang nghiêm”, Giang Tho mang đến các gói dịch vụ mai táng trọn gói, đáp ứng nhu cầu từ cơ bản đến cao cấp, giúp gia đình giảm bớt lo toan, tập trung vào việc tiễn biệt người thân.
+Xem thêm: https://maitanggiangtho.vn/
 
 2. Các dịch vụ nổi bật tại Mai táng Giang Tho
 Mai táng Giang Tho cung cấp đầy đủ các hạng mục tang lễ, bao gồm:
